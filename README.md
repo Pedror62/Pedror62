@@ -1,9 +1,9 @@
-### oieee 👍
+### oieee 🫡
 
 - 🔭 Estou trabalhando no suporte para cliente.
-- 🌱 Estou aprendendo Inglês, analise e desenvolvimento de sistemas. JavaScript
-- 👯 Estou procurando estagio na área de desenvolvimento.
-- 📫 Como chegar até a mim instagram: Pedror62 ou E-mail:pedrohenriquerocha62@gmail.com
+- 🌱 Estou aprendendo Inglês.
+- 👨‍💻 Engenharia de Sistemas.
+- 📫 Como chegar até a mim? contatos abiaxo!
 
 ##
 
