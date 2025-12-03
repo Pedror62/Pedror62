@@ -1,6 +1,6 @@
 ### oieee 🫡
 
-- 🔭 Estou trabalhando no suporte para cliente.
+- 🔭 Analista.
 - 🌱 Estou aprendendo Inglês.
 - 👨‍💻 Engenharia de Sistemas.
 - 📫 Como chegar até a mim? contatos abiaxo!
